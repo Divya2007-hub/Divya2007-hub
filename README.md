@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Divya2007-hub
 - 👀 I’m interested in learning new languages.
-- 🌱 I’m currently learning python and c language.
+- 🌱 I’m currently learning python, c language and java.
 - 💞️ I’m looking to collaborate with the people i can be help and learn from them.
 - 📫 How to reach me www.linkedin.com/in/
 divya-kumari5aaa2t95
