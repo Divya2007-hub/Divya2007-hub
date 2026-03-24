@@ -2,8 +2,6 @@
 - 👀 I’m interested in learning new languages.
 - 🌱 I’m currently learning python, c language and java.
 - 💞️ I’m looking to collaborate with the people i can be help and learn from them.
-- 📫 How to reach me www.linkedin.com/in/
-divya-kumari5aaa2t95
 - 😄 Pronouns: she
 - ⚡ Fun fact: Still searching to learn new things.
 
